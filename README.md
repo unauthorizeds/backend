@@ -1,1 +1,1 @@
-We're here to make your naked images! 
+We're here to make content that increases your dopamine & other hormones! 
